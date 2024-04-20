@@ -1,2 +1,2 @@
 # rabotapractichesk
- https://zlatakjshkarova.github.io/rabotapractichesk/
+https://zlatakjshkarova.github.io/rabotapractichesk/
